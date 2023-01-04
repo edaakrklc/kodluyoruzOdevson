@@ -1,2 +1,0 @@
-# kodluyoruzOdevson
-kodluyoruzOdevSon
